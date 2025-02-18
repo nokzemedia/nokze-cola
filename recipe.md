@@ -1,3 +1,5 @@
+![alt text](https://pbs.twimg.com/profile_images/1883200406328619010/9aLNVzPi_400x400.jpg)
+
 # Ingredients
 1 ½ cups of water
 
